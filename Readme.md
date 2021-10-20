@@ -1,1 +1,1 @@
-Olá, esse projeto ensina vc a ser um bosta
+Olá, esse projeto ensina vc a ser um bosta (v2)
